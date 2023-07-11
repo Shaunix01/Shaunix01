@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Shaunix01
+- 🙏 I'm new to Github
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning software development
+- 💞️ I’m looking to collaborate on java
+- 📫 How to reach me whatsapp +2348142711123
+--->Thank you
